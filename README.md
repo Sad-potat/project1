@@ -2,4 +2,4 @@
 
 ## my name is potat
 
-![](https://images.app.goo.gl/PbxgVbQMmNj9H4Ww60)
+![](https://www.pngall.com/wp-content/uploads/2016/03/Cat-PNG-2.png)
